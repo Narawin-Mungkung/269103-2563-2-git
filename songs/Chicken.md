@@ -1,4 +1,4 @@
-ไก่ ไก่ ไก่ ตัวเล็กตัวใหญ่  
-ชวนกันไปคุ้ยเขี่ยหากิน  
-บ้างก็วิ่ง บ้างก็บิน  
-ชิงกันกินจนตัวมันใหญ่
+ Cock cock cock little and Big one
+  lest's o to eat
+ some run some fly
+ Eat to bigsize
